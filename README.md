@@ -1,2 +1,0 @@
-# MindBridge-Clinical
-hgsdafgasd
